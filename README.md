@@ -1,0 +1,7 @@
+- [https://mavisconor.github.io](https://mavisconor.github.io)
+- [https://medium.com/@mavisconor](https://medium.com/@mavisconor)
+- [https://www.quora.com/profile/Mavis-Conor](https://www.quora.com/profile/Mavis-Conor)
+- [https://www.reddit.com/user/Wide-Inevitable-5281/](https://www.reddit.com/user/Wide-Inevitable-5281/)
+- [https://www.youtube.com/channel/UCuQU1j-TFJJIbR3zjqP7ltA](https://www.youtube.com/channel/UCuQU1j-TFJJIbR3zjqP7ltA)
+- [https://x.com/MavisConor](https://x.com/MavisConor)
+- [https://www.pinterest.com/MavisConor/](https://www.pinterest.com/MavisConor/)
